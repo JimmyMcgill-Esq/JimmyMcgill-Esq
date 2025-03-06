@@ -1,2 +1,2 @@
-![...](https://cdn.discordapp.com/attachments/1347039887051849741/1347045077138280520/better-call-saul.webp?ex=67ca64fd&is=67c9137d&hm=401ffe7bdc92bebffcbd12bf1e82f4f0694c771aca89bbe02ada03a0b0369b00&)
-wip
+![...](https://cdn.discordapp.com/attachments/1347039887051849741/1347040239172194354/tumblr_5a1458b4b229bbe5a0f716676fb4afd8_45c5da4b_1280.jpg?ex=67ca607b&is=67c90efb&hm=44d6aeeeaf92f6c15511cd5c141e9eba687b17d276c269d6528008f2afe84e58&)
+![name](https://cdn.discordapp.com/attachments/1347039887051849741/1347051316177928212/Untitled8_20250305204045.png?ex=67ca6acc&is=67c9194c&hm=fea72a64560a60b8564aca3d469091d7b2ab19c82be96798cf84123bdeca0d23&)
